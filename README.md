@@ -2,3 +2,4 @@
 ini adalah cara menggunakan jump search
 
 #sbhjsdjsdnksls
+frtyghny
